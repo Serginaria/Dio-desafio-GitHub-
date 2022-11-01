@@ -15,7 +15,7 @@
 10. Almas Mortas - Górgol
 11. Dom Casmurro - Machado de Assis
 12. O Primo Basílio - Eça de Queiroz
-13. Os Irmãos Kramazov - Fiódo Dostoievsk
+13. Os Irmãos Karamazov - Fiódo Dostoiévsk
 14. O Amor nos Tempos do Cólera - Gabriel Garcia Márquez
 15. O menino do Dedo Verde - Maurice Druon
 
