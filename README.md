@@ -5,7 +5,7 @@
 
 1. Crime e Castigo - Fiódo Dostoiévsk
 2. Cem Anos de Solidão - Gabriel Garcia Márquez
-3. O Morro dos Ventos Uivantes - 
+3. O Morro dos Ventos Uivantes - Emily Brontë
 4. Jane Eyre - Charlotte Bronte
 5. Dom Quixote de La Mancha - Miguel de Cervantes
 6. Orgulho e Preconceito - Jane Austen
